@@ -7,7 +7,7 @@ We are located at 519 Onam Plaza 6th Floor Industry House, AB Road Indore(M.P) 4
 Product & Service:
 We provide you with the best services you can ever get in Indore city. As we have a lot of flats, raw houses, and plots in an excellent environment and at affordable prices.
 Our project is mainly highlighted in Super City, Super City Dhabli. Recently we work on Park Villa and Alpine. We are coming soon to Villas, Park Heights, and Grand Empire.
-We have completed overall 450 projects and have almost 2200 satisfied clients. In our list, almost 136 properties have already been listed and more are on the way.
+We have completed overall 450 projects and have almost 2200 satisfied clients. In our list, almost 136 properties have already been listed and more are on the way. You can visit our site https://aakarassets.com/
 Partnership:
 We are in a partnership with big companies like Nexus Reality, Sukunj Reality, Capper Academy, etc.
 So if you are looking for a better environment to get your dream house at an affordable price, just contact us during our working hours.
